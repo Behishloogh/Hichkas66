@@ -1,2 +1,2 @@
-# Hichkas66
+# Hichkas
 Always be your best self
